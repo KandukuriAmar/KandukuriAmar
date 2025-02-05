@@ -72,4 +72,4 @@ Here are some of my notable projects:
 
 ---
 
-🚀 **Keep Learning and Coding!** 🚀
+🚀 **Keep Learning !** 🚀
